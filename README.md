@@ -1,0 +1,1 @@
+# riziqking.github.io
